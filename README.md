@@ -10,6 +10,6 @@
     Phone: +91 9035621864 <br>
 -😄 Pronouns: It
 ## Random Trivia
--⚡ Fun fact: I frickin'hate black flying insects lmaooo. <br>
+-⚡ Fun fact: I frickin' hate black flying insects lmaooo. <br>
                Plus I love gaming, puppies and watching anime
   
