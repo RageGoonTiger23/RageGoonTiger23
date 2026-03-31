@@ -14,7 +14,7 @@
    - Other interests: Apart from the above mentioned, I consistently indulge in reading manga, watching anime and playing basketball in my free time.
 ## 🏭 Organizations:
    Currently a freelancer.
-##🌐 Connect with me:
+## 🌐 Connect with me:
 -🌎Contact me for help on getting started with animations (raster and vector). <br>
 -📫 How to reach me: <br> 
     Email: kundu.aarav2308@gmail.com <br> 
