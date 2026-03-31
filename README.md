@@ -5,7 +5,8 @@
 🤔 I’m looking for help with advanced animations 
 ## Connect with me
 -🌎Contact me for help on getting started with animations <br>
--📫 How to reach me: Email: kundu.aarav2308@gmail.com <br> 
+-📫 How to reach me: <br> 
+    Email: kundu.aarav2308@gmail.com <br> 
     Phone: +91 9035621864 <br>
 -😄 Pronouns: It
 ## Random Trivia
