@@ -2,7 +2,8 @@
 💻 I’m currently working on Graphic Animation and Neural Networks. <br>
 🌱 I’m currently learning JavaScript. <br>
 🤝 I’m looking to collaborate on LLMs and Deep Learning Models. <br>
-🤔 I’m looking for help with advanced animations. 
+🤔 I’m looking for help with advanced animations. <br>
+👓 Currently a high-school student.
 ## 😎 Skills:
    I have a vast expertise in animation software and languages: <br>
    - Animation Software: Unity, Unreal <br>
