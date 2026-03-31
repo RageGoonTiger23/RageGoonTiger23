@@ -11,5 +11,5 @@
 -😄 Pronouns: It
 ## Random Trivia
 -⚡ Fun fact: I frickin' hate black flying insects lmaooo. <br>
-               Plus I love gaming, puppies and watching anime
+               Plus I love gaming, puppies and watching anime.
   
