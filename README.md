@@ -9,6 +9,6 @@
 -📫 How to reach me: Email: kundu.aarav2308@gmail.com Phone: +91 9035621864
 -😄 Pronouns: It
 ## Random Trivia
--⚡ Fun fact: I frickin'hate black flying insects lmaooo
+-⚡ Fun fact: I frickin' hate black flying insects lmaooo
                Plus I love gaming, puppies and watching anime
   
