@@ -1,4 +1,4 @@
-## Hi there 👋 I'm RageGoonTiger23!
+## Yo there 👋 I'm RageGoonTiger23!
 💻 I’m currently working on Graphic Animation and Neural Networks. <br>
 🌱 I’m currently learning JavaScript. <br>
 🤝 I’m looking to collaborate on LLMs and Deep Learning Models. <br>
